@@ -4,7 +4,8 @@ Latest updates
 <body>
 
 <h1>Tesla 3 new interor designs</h1>
-<img src="https://www.google.ie/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwikmYavwe3WAhXJJcAKHRk7CEwQjRwIBw&url=https%3A%2F%2Fwww.tesla.com%2Fmodel3&psig=AOvVaw3TbPFG_lz35SU4d_MsqpFJ&ust=1507981060826818">
+<img src="https://cnet1.cbsistatic.com/img/oyvpF04YS20ZAfqVSVCIb2ajRhs=/2017/07/29/972c2ad5-34d4-4b74-b2ca-ab3d4467d6d5/model-3-mountain-pearl-1.jpg">
+
 
 <p>This is the Tesla model 3 Tesla’s Models S and Model X are premium products with list prices to match; superior electric vehicles for the wealthy. The Model 3, now delivering to its first US owners (UK buyers must wait until late 2018 or, more likely, 2019), isn’t cheap but it’s considerably more affordable. UK pricing is yet to be set but is likely to start at a shade over £30,000.
 
